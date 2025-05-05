@@ -1,1 +1,1 @@
-*   [Flugsvamp - 4.0 (Sweden)](http://ikhpggtz3iv6gfebiqagmb4zto2e6xepocqjii3yvkrp27jwzlds2lqd.onion) - `http://ikhpggtz3iv6gfebiqagmb4zto2e6xepocqjii3yvkrp27jwzlds2lqd.onion`
+*   [Torzon Market](http://cdvrmuqeaufocpgr3o4u3kd7dxpe6m2zoreyva4jlntazmflkleowuad.onion) - `http://cdvrmuqeaufocpgr3o4u3kd7dxpe6m2zoreyva4jlntazmflkleowuad.onion`
